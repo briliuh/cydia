@@ -1,2 +1,2 @@
-Qiosz
-Malr
+Briliuh
+RU9.N
